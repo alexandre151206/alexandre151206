@@ -9,3 +9,4 @@ utilizo esse espaço para minha organizaçao e compartilhamento dos meus projeto
 ### voce pode entrar em contato comigo 💙📧
 
 linexloficial47@gmail.com 
+![](https://tenor.com/pt-BR/view/happy-dance-gif-gif-11132015410698200956)
